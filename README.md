@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Emilio Sese!
-= 📫 seseev@mail.uc.edu
+- 📫 seseev@mail.uc.edu
